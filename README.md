@@ -1,0 +1,1 @@
+sedikit ucapan buat kikik
